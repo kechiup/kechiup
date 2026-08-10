@@ -4,3 +4,4 @@
 eight my shoe now thats a Sickteen
 
 [strawpage](https://getogoro.straw.page) . [ata](https://heatab.atabook.org/) . [prns.cc](https://pronouns.cc/@getogoro)
+most of the music in my strawpage is part of my suguruplaylist for very apparent reasonsPLEaselostejnn listen to it,,,,,,,,,,,,,,,,,,,,
