@@ -3,4 +3,4 @@
 
 eight my shoe now thats a Sickteen
 
-[strawpage](https://getogoro.straw.page) . ata
+[strawpage](https://getogoro.straw.page) . [ata](https://heatab.atabook.org/) . [prns.cc](https://pronouns.cc/@getogoro)
