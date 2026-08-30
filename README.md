@@ -5,4 +5,5 @@ eight my shoe now thats a Sickteen
 
 [strawpage](https://getogoro.straw.page) . [ata](https://makemeapromisehere2nite.atabook.org/) . [prns.cc](https://pronouns.cc/@getogoro)
 
-most of the music in my strawpage is part of my suguruplaylist for very apparent reasonsPLEaselostejnn listen to it,,,,,,,,,,,,,,,,,,,,
+<img width="1640" height="2186" alt="image" src="https://github.com/user-attachments/assets/12af0f7b-e0e6-4d2d-82d1-f07bbd906c61" />
+my art#myart
