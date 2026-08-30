@@ -1,4 +1,5 @@
-
+<img width="263" height="42" alt="image" src="https://github.com/user-attachments/assets/3b2ed4c8-9a4c-48cc-9ff6-d19b42f4585e" />
+WHOEVER THIS WAS PLSIMSO SORRY I DINT SEE😭COME BACK PLS
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nk4kdemc6manvnwbvtvqw7rxwe&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nk4kdemc6manvnwbvtvqw7rxwe&redirect=true)I Brought You My Bullets, You Brought Me Your Love  
 
 eight my shoe now thats a Sickteen
